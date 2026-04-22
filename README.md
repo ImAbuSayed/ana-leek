@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا نور العين قلبي ينادي
+> في صمت الليل أنت مرادي
+> نار الشوق تحرق فؤادي
+> روحي معاك في كل وادي
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
